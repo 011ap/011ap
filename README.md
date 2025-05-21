@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @011ap
-- 👀 I’m interested in Games, Ai, EnvironmentalTech, EV&Race Cars&Bikes, Apps, Websites, Humanoids, Automation, revolutionary ideas
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on business projects, and build my own Jarvis someday.
+- 👀 I’m interested in Games, AI, EnvironmentalTech, EV&Race Cars&Bikes, Apps, Websites, Humanoids, Automation, revolutionary ideas
+- 🌱 I’m currently learning n8n and AI.
+- 💞️ I’m looking to collaborate and create pasive income sources so I can be lazy, and build my own Jarvis someday.
 - 📫 How to reach me: Email me @ananyapandey.head2019@gmail.com
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: A weirdo to scare you. 
